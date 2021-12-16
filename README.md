@@ -1,0 +1,1 @@
+# nablarch-contents-resources
